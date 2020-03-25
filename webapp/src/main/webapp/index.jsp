@@ -4,3 +4,10 @@
 
 
 <h1>TEN KOD ZOSTAŁ NAPISANY PRZEZ MASTEERA TOMKA D i automatycznie zdeploypowany bez zadnego przypadłu i ruchu </h1>
+
+
+
+A teraz go zmieniam AUUUUUU
+
+
+MKS MOS 
