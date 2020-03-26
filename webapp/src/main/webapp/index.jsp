@@ -11,3 +11,8 @@ A teraz go zmieniam AUUUUUU
 
 
 <p>MKS MOS</p> 
+
+
+No i to dodałem dzisiaj :) 
+AUU 
+Czyli 26.02.20202 o 10.23 
