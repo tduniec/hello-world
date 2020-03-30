@@ -21,3 +21,6 @@ Właśnie to edytowałem AUUUUUUU
 Bedzie cos z tego???????????????????
 przed 22:00 ? 
  bo jest 21:57 
+
+
+<h1><b>Dodałem cokoolwiek zeby sprawdzic czy konener sie sam usunie w Jobie :D</b></h1>
