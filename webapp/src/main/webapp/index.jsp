@@ -13,3 +13,6 @@ A teraz go zmieniam AUUUUUU
 <p>MKS MOS</p> 
 
 <h1>Piter Kaniewski to mistrz! </h1>
+
+
+Właśnie to edytowałem AUUUUUUU
